@@ -1,0 +1,7 @@
+- 👋 Hi, I’m # FireFoxRblx
+- 👀 I’m interested in coding and gaming
+- 🌱 I’m currently learning HTML and phyton
+- 💞️ I’m looking to collaborate on a business
+- 📫 my insta @firefox_rblx
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I'm a future millionaire
